@@ -269,3 +269,13 @@ Investing in AvGeek Token involves inherent risks, including potential for marke
 The AvGeek Token aims to empower aviation enthusiasts in Africa and beyond, fostering a collaborative community and unlocking access to valuable resources. By leveraging blockchain technology and cultivating innovative partnerships, the project aspires to revolutionize the way individuals connect, contribute, and thrive within the aviation ecosystem.
 
 Join us on this exciting journey as we take flight with AvGeek Token!
+
+**Connect with Us:**
+- **Telegram:** [AvGeek Token Telegram](https://t.me/AvGeekToken)
+- **Website:** [AvGeek Token Website](https://avgeek.xperience.tg/)
+- **Twitter:** [AvGeek Token Twitter](https://twitter.com/avgeektoken)
+- **BSC Scan:** [AvGeek Token on BSC Scan](https://bscscan.com/token/0x728dCaCaE3bb844DC1A8D620D427463D673DE3b9)
+
+*Note: You can get a quick response to any questions, and chat with the project in our [Telegram](https://t.me/AvGeekToken). Visit our [website](https://avgeek.xperience.tg/) for more detailed information. Follow us on [Twitter](https://twitter.com/avgeektoken) for real-time updates. Explore our token on [BSC Scan](https://bscscan.com/token/0x728dCaCaE3bb844DC1A8D620D427463D673DE3b9) for transparency and verification.*
+
+---
